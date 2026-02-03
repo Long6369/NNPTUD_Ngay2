@@ -1,2 +1,1 @@
-# NNPTUD_Ngay2
-NNPTUD_Ngay2
+Lê Tấn Cường - 2280600344
